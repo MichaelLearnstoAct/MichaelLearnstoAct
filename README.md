@@ -1,1 +1,1 @@
-Michael learns to act, first step is challenging.
+Michael learns to act. First step is challenging.
